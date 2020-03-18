@@ -1,4 +1,4 @@
-# Shaka Team Vision - Awareness Capitalism and Artificial General Intelligence
+# Awareness Capitalism and Artificial General Intelligence - Shaka Team Vision
 ## Introduction
 This document provides the vision and mission of Shaka team to invite people together to bring the whole world to the next level of humanity.
 
